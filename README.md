@@ -1,2 +1,2 @@
-<p align="center">10:29 PM[SFAWTDE-D3RLORD3] avery..
+<p align="center">d3rlord3 num 1 fan !!
 </p>
