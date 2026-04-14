@@ -1,6 +1,6 @@
 <p align="center">d3rlord3 num 1 fan !!
 </p>
+<p align="center"><img width="866" height="837" alt="image" src="https://github.com/user-attachments/assets/b7b1584c-20ff-4c49-852e-0ada762e58f5" />
 
-<p align="center"><img width="498" height="188" alt="image" src="https://github.com/user-attachments/assets/642ea118-2453-4c20-bce4-2f31200f5f28" />
 </p>
 
